@@ -1,0 +1,1 @@
+# what-is-jhipster-and-why-should-you-try-it
